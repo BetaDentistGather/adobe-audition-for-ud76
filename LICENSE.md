@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for PC | Adobe Audition for Windows with automatic Adobe Audition for PC | Adobe Audition for Windows Filter | macro-recording + spectrogram-view, the #1
 
 
 
